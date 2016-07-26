@@ -1,0 +1,1 @@
+Registration page will be download
